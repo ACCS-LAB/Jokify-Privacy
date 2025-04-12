@@ -1,1 +1,0 @@
-# Jokify-Privacy
